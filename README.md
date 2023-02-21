@@ -1,2 +1,2 @@
 # -Task
-in this task we will practice collaboration work
+In this task we practiced collaboration work.
